@@ -7,5 +7,5 @@ _torço pro Santos_🐋
 
 _e gosto de musica_🎵
 
-![][image](https://media1.tenor.com/m/xCkCA1qN2AMAAAAC/kiss-trophy-neymar-jr.gif]
+![](https://media1.tenor.com/m/xCkCA1qN2AMAAAAC/kiss-trophy-neymar-jr.gif)
 
