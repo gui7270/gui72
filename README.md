@@ -1,5 +1,5 @@
 _Meu nome e Guilherme Oliveira_👑
-_Ultimamente so jogo futebol meu inta e @gui.oli7 segue la😃
+_Ultimamente so jogo futebol meu insta e @gui.oli7 segue la😃
 
 _gosto de futebol_😃
 
