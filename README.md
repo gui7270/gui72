@@ -9,7 +9,7 @@ _torço pro Santos_🐋
 
 _e gosto de musica_🎵
 
-_Tenho 14 anos faço aniversario mes que vem_
+
 
 
 ![](https://media1.tenor.com/m/xCkCA1qN2AMAAAAC/kiss-trophy-neymar-jr.gif)
